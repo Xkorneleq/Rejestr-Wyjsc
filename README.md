@@ -1,1 +1,1 @@
-# Rejestr-Wyj-
+# Rejestr-Wyjść
